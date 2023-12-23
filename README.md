@@ -15,6 +15,10 @@ O  modelo de participação poderia ser individual ou em equipe. Eu particularme
 
 ![image](https://github.com/laurindodumba/Hackaton-Ciencia-de-Dados/assets/38964642/bc09494f-c2f4-4c34-8b19-1b6d5b66b049)
 
+![image](https://github.com/laurindodumba/Hackaton-Ciencia-de-Dados/assets/38964642/2356c971-92a3-4dcd-8994-e30428c53b77)
+
+![image](https://github.com/laurindodumba/Hackaton-Ciencia-de-Dados/assets/38964642/dc76acfe-09f8-4109-b58d-ddb2540638cc)
+
 
 
 
